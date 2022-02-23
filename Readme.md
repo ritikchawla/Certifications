@@ -2,7 +2,7 @@
 Website: https://ritikchawla.github.io/   <br/>
 Linkedin: https://www.linkedin.com/in/ritikchawla/ <br/>
 Dare2Comepte: ritikchawla7136 <br/>
-Twitter: https://twitter.com/ritikchawla<br/>_
+Twitter: https://twitter.com/ritikchawla<br/>
 Miraquill: https://www.miraquill.com/reparteeofthesoul<br/>
 Tumblr: https://www.tumblr.com/blog/dreamilypinkbeliever<br/>
 Instagram:https://www.instagram.com/hoopy_frood/<br/>
