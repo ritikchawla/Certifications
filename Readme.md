@@ -1,4 +1,4 @@
-Profile Links
+<b>Profile Links</b><br/>
 Website: https://ritikchawla.github.io/   <br/>
 Linkedin: https://www.linkedin.com/in/ritikchawla/ <br/>
 Dare2Comepte: ritikchawla7136 <br/>
